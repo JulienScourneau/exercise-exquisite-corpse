@@ -11,6 +11,7 @@
 **Voldemort** n'ayant jamais entendu d'éternuement si bruyant et dévastateur décida de devenir son apprenti.
 Mathieu de peur ne pouvait refuser.
 Il espérait cepandant que **Voldemort** ne découvre jamais son autre arme secrete.
+
 ![voldemort](assets/sneezing.gif)
 
 ---
@@ -23,7 +24,9 @@ Il espérait cepandant que **Voldemort** ne découvre jamais son autre arme secr
 ---
 
 **SON PET DEVASTATEUR OULALA** 
+
 ![PET](assets/giphy.gif)
+
 Mathieu espère que Voldemort n'utilisera pas cette arme contre ses étudiants. En effet le nuage toxique émanant du petit booty de Voldy pourrait faire fuir tous ses autres jeunes padawan.
 
 ---
