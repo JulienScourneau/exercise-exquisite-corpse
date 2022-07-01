@@ -11,3 +11,13 @@
 Mathieu de peur ne pouvait refuser.
 Il espérait cepandant que **Voldemort** ne découvre jamais son autre arme secrete.
 ![voldemort](assets/sneezing.gif)
+
+---
+
+**SON PET DEVASTATEUR OULALA** 
+![PET](assets/giphy.gif)
+Mathieu espère que Voldemort n'utilisera pas cette arme contre ses étudiants. En effet le nuage toxique émanant du petit booty de Voldy pourrait faire fuir tous ses autres jeunes padawan.
+
+Après plusieurs heures de cours et de frustrations, Voldy ne peut se retenir et décide de sortir son arme secrète ce qui ... 
+
+> @Julien.E courage pour trouver la fin :trollface: :satisfied:
