@@ -28,3 +28,6 @@ Mathieu espère que Voldemort n'utilisera pas cette arme contre ses étudiants. 
 Après plusieurs heures de cours et de frustrations, Voldy ne peut se retenir et décide de sortir son arme secrète ce qui ... 
 
 > @Julien.E courage pour trouver la fin :trollface: :satisfied:
+
+... est sa baguette magique nommée *Rantanplan* avec cette baguette, il lança un sort de gratouille sur le petit **Potter** le faisant hurler de rire et créant une ouverture pour qu'il puisse mettre sa cape magique et sortir de la classe en catimini.
+
