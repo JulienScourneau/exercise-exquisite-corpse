@@ -11,3 +11,9 @@
 Mathieu de peur ne pouvait refuser.
 Il espérait cepandant que **Voldemort** ne découvre jamais son autre arme secrete.
 ![voldemort](assets/sneezing.gif)
+
+---
+
+**Mathieu** apris à **Voldemort** tout ce qu'il savait à propos de l'éternuement.
+**Voldemort** fort de ses nouvelles capacitées se remis à la poursuite de **Mathieu**, et le piégea lors de sa fête d'anniversaire.
+**Mathieu** est confu, il pensait que **Voldemort** était devenu son amis et se retrouve sans option ... heureusement qu'il n'avait toujours pas dévoiler son arme secrete.
